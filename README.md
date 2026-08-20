@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-LXCA770719HCHPRR07
+LXCA770719HCHPRR07
